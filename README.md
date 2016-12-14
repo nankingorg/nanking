@@ -1,2 +1,0 @@
-# nanking
-nanking Massacre
